@@ -10,7 +10,6 @@ Coin Master has captured the hearts of mobile gamers worldwide with its unique b
 -
 
 
-
 ---
 
 ## H1: Understanding Coin Master
